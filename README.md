@@ -22,8 +22,8 @@ Contributions are welcome! To contribute to Crate Gemini Clone, follow these ste
 
 ## Contact
 
-For any inquiries or feedback, please contact us at [navajbloch420@gmail.com](https://www.linkedin.com/in/bloch-navaj/).
+For any inquiries or feedback, please contact us at [Linkdin](https://www.linkedin.com/in/bloch-navaj/).
 
----
+
 
  
